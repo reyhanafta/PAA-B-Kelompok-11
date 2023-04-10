@@ -1,2 +1,0 @@
-Reyhan Afta Bimantara
-212410102092
